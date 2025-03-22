@@ -2,7 +2,7 @@
 
 🔺In this Project,i have described THE following **DATA-TYPES** in details !!
 
-🔻Its practice projects assign to me by my **Teacher**,To understand and learned python better !!
+🔻Its a practice projects assign to me by my **Teacher**,To understand and learned python better !!
 
 🔺ɪꜰ ᴛʜᴇʀᴇ ɪꜱ ᴀɴʏ Qᴜɪᴇʀᴇꜱ ʟᴇᴛ ᴍᴇ ᴋɴᴏᴡ!! 👾
 
