@@ -6,4 +6,4 @@
 
 🔺ɪꜰ ᴛʜᴇʀᴇ ɪꜱ ᴀɴʏ Qᴜɪᴇʀᴇꜱ ʟᴇᴛ ᴍᴇ ᴋɴᴏᴡ!! 👾
 
-**REACH ME OUT📧:"aeylanaseer@gmail.com"**
+**REACH ME OUT ON DISCORD 👾:"user6790.h"**
